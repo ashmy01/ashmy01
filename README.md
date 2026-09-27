@@ -1,4 +1,4 @@
-                                     # Now Streaming : AISHI 
+                                     # NOW STREAMING : AISHI 
 
 **Developer first. Founder second.**
 
